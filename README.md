@@ -3,6 +3,6 @@ Bài thực hành số 2 môn Xử lý tiếng nói Thầy Trần Quốc Long n�
 
 Video Demo:
 1. https://drive.google.com/file/d/1LQqzWlW6gJPgd7miNpi3dsRUYyioMZ6P/view?usp=sharing
-2. https://drive.google.com/file/d/1grHgEgd3psCEmpFtjwikUdbilt5rEm33/view?usp=sharing
+2. https://drive.google.com/file/d/1TxkrUbuDEN8B7f6DwysrL2gAh_ScTWCm/view?usp=sharing
 
 
